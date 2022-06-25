@@ -1,5 +1,5 @@
 # 👋 Hi, I’m Ashton Fernandes
-- 👀 I’m interested in ***Python/Django Development, Cybersecurity, Scripting...***
+- 👀 I’m interested in *Python/Django Development, Cybersecurity, Scripting...*
 - 🌱 I’m currently learning **AWS & RESTapi...**
 - 💞️ I’m looking to collaborate on Project related to Python and automation (in Selenium, Bs4) library...
 
