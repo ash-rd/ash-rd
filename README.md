@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning **AWS & RESTapi...**
 - 💞️ I’m looking to collaborate on Project related to Python and automation (in Selenium, Bs4) library...
 
-- Freelancing for [MD Sam](https://t.me/flashsalebooking_sam)
-- Content Creator at [Simply Earn](https://www.youtube.com/channel/UCw8CFcHLWD_hyupaRhkfRQQ)
+- ✨ Freelancing for [MD Sam](https://t.me/flashsalebooking_sam)
+- 🚀 Content Creator at [Simply Earn](https://www.youtube.com/channel/UCw8CFcHLWD_hyupaRhkfRQQ)
 
 
 > Avaiable on Instagram at [@ash__rd](https://www/instagram.com/ash__rd)
