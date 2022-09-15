@@ -7,7 +7,7 @@
 - 🚀 Content Creator at [Simply Earn](https://www.youtube.com/channel/UCw8CFcHLWD_hyupaRhkfRQQ)
 
 
-> Avaiable on Instagram at [@ash__rd](https://www/instagram.com/ash__rd)
+> Avaiable on Instagram at [@ash__rd](https://www.instagram.com/ash__rd)
 
 
 <!---
